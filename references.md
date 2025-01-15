@@ -1,3 +1,3 @@
-# References
 
-* octocat 1 😈
+Hello, my name is Jeremy. I am the 5 time winner of the Crunter Games.
+
